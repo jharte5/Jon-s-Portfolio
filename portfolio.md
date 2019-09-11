@@ -11,6 +11,5 @@
 
 ##Ideas
 
-
-[fave cartoon](https://images.app.goo.gl/A71iAvFrhPgWg7ic8)
+[fave cartoon](https://www.deviantart.com/deer-head/art/Young-Straw-Hats-433324857)
 
