@@ -9,7 +9,7 @@
 ##Goals
 
 * To be a Jedi developer
-    * Master `html``css``javascript`
+    * Master `html css javascript`
     * More to come ...
 * To be a Jedi Git user
     * Practice ...
