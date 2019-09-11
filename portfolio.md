@@ -18,12 +18,12 @@
 ---
 ## Education
  B.A. Criminal Justice Research Analyst at CUNY John Jay
-  
+
 ---
 ## Experience
 * ... More to come
 
 ---
 
-[fave cartoon](https://www.deviantart.com/deer-head/art/Young-Straw-Hats-433324857)
+ ![fave cartoon](https://www.deviantart.com/deer-head/art/Young-Straw-Hats-433324857)
 
