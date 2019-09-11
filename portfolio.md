@@ -25,5 +25,5 @@
 
 ---
 
- ![fave cartoon](https://www.deviantart.com/deer-head/art/Young-Straw-Hats-433324857)
+![fave cartoon](https://www.deviantart.com/deer-head/art/Young-Straw-Hats-433324857)
 
