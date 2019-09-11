@@ -10,14 +10,15 @@
 
 * To be a Jedi developer
     * Master `html``css``javascript`
-    * Master ...
+    * More to come ...
 * Develop the next most used social media app    
 * To be a Jedi Git user
     * Practice ...
-    
+
 ---
 
-##Ideas
+##Experience
+* ... More to come
 
 ---
 
